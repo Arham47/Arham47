@@ -13,10 +13,10 @@
 ### Connect with me:
 
 ~ with my gmail 
-i.am.arhamkhan25@gmail.com &nbsp;
+i.am.arhamkhan25@gmail.com
 ~phone number
 +923359908281
-My PortFolio website
+### My PortFolio website
 www.arhamkhan.info
 &nbsp;&nbsp;
 
