@@ -3,7 +3,7 @@
 
 
 
-## I'm a CTO, Developer, and Freelancer!
+## I'm a Developer, and Freelancer!
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
